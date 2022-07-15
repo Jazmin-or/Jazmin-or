@@ -1,4 +1,4 @@
-Hi there 👋 I´m driade <br>
+Hi there 👋 I´m driade_ <br>
 I'm a Designer and Visual Communicator working in Mexico City.
 <br><br>
 📖 About Me
